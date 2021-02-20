@@ -9,4 +9,3 @@
 - 📫 How to reach me: wvdp@mit.edu
 - 😄 Pronouns: he/him/his
 - ⚡ Fun fact: I always wanted to become an astronaut, and now ESA is actually recruiting them, fingers crossed!
--->
