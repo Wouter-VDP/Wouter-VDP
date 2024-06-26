@@ -8,4 +8,3 @@
 - 🤔 I’m looking for help with projects turning fundamental science into applications.
 - 📫 How to reach me: wvdp@mit.edu
 - 😄 Pronouns: he/him/his
-- ⚡ Fun fact: I always wanted to become an astronaut, and now ESA is actually recruiting, fingers crossed!
